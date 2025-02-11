@@ -1,0 +1,2 @@
+# MihoyoOfficialProto
+REAL VERSION PROTO
